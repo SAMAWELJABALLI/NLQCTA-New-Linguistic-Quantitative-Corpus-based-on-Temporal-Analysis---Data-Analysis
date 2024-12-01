@@ -1,0 +1,1 @@
+# NLQCTA-New-Linguistic-Quantitative-Corpus-based-on-Temporal-Analysis---Data-Analysis
